@@ -1,4 +1,4 @@
-### Hi there I'm Ambi !
+### Hi there I'm Kapitche !
 :computer: C/C++ developer </br> 
 📫 **Discord:** kapitche#5302
 
